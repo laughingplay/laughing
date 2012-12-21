@@ -1,0 +1,4 @@
+laughing
+========
+
+laughing tech blog
